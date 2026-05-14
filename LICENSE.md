@@ -1,4 +1,4 @@
-#  
+#  Experience dress to impress like never before with advanced Script for dress to impress, the #1 Script. Includes undetectable and auto-collect for
 
 
 
